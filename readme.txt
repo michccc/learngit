@@ -4,3 +4,4 @@ git is a dis ver
 linus fuck nvidia
 blue color
 red
+haru haru
